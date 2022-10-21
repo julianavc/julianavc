@@ -1,4 +1,4 @@
-### Oii! Eu sou a Juliana 👋
+### Oii! Eu sou a Juliana ♥
 
 <div align="center">
   <a href="https://github.com/julianavc">
